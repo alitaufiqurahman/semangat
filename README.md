@@ -1,0 +1,2 @@
+# semangat
+Pantang menyerah
